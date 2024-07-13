@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ARFAFATEH
-- 👀 I’m interested in coding,basically I am a student currently studying in 2nd year ,in future i want to be a software engineer.
+- 👀 I’m interested in coding,basically I am a student currently studying in 2nd year ,in future I want to be a software engineer.
 - 🌱 I’m currently learning web developing as its the basic to coding
 - 💞️ I’m looking to collaborate with the seniors who guide me well as a junior,treat me with love and also fellows whom with I can discuss about my projects.
 -  I want to learn some thing new something special with the world means with you.
