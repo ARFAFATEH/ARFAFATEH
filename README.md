@@ -5,7 +5,7 @@
 -  I want to learn some thing new something special with the world means with you.
 - 📫 How to reach me.My email account is " aqsaazam0301@gmail.com" and whatsapp number is "03288146061.
 - 😄 Pronouns: ...RAFA
-- ⚡ Fun fact: .I love coding,even its the biggest cause of headeach as I am a beginner 🔰.
+- ⚡ Fun fact: .I love coding,even its the biggest cause of headeach as I am a beginner .
 
 <!---
 ARFAFATEH/ARFAFATEH is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
